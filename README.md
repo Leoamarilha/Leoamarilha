@@ -1,6 +1,6 @@
 ## Olá! me chamo Leandro Amarilha 👋
 
-- 🔭 Hoje trabalho como QA Engineering
+- 🔭 Em Busca de uma oportunidade
 - 🌱 Estudando atualmente para retirada da certificação CTFL
 - 😄 Pronouns: ele/dele
 ## 
